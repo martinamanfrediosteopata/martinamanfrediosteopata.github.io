@@ -1,1 +1,1 @@
-# martinamanfredi-osteopata.github.io.
+martinamanfrediosteopata.github.io
